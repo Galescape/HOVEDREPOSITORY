@@ -1,0 +1,2 @@
+# HOVEDREPOSITORY
+Skole
